@@ -46,10 +46,6 @@ Changes to this Policy
 
 We may update this Privacy Policy from time to time, and we will post the updated policy on our website. Your continued use of [Bot Name] after we make changes to this policy indicates your acceptance of the revised policy.
 
-Contact Us
-
-If you have any questions or concerns about this Privacy Policy, please contact us at [g5browningg@gmail.com].
-
 Effective Date
 
 This Privacy Policy is effective as of [2/27/2025].
